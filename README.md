@@ -1,2 +1,2 @@
 # Hello-
-I'm a complete nood ;_;
+I'm a complete noob ;_;
